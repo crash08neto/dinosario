@@ -1,0 +1,2 @@
+# dinosario
+STYUI~LÇKYTRQWEDRTGHJKq
